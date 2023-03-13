@@ -1,0 +1,1 @@
+# wd-classs1-shoron
